@@ -2,5 +2,5 @@
 
 hi this is Adam Yagmur and Sando
 
-heres one for the rules:
+heres one rules:
 we go to the river have beers
